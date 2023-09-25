@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Computers
 - 🤔 I’m looking for help with ... Cyber Security Analyst
 - 💬 Ask me about ... Cars and what's my favorite
-- 📫 How to reach me: ... By email
+- 📫 How to reach me: ... By email: watkinsonbrandon0@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... My grandfather got into a fight with Hells Angels biker gang on his wedding day
 -->
